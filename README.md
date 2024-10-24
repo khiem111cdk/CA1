@@ -1,1 +1,10 @@
-# CA1
+terryclarke27@icloud.com
+sethali27@icloud.com
+jaceymarks@icloud.com
+tannersherman2@icloud.com
+lilahpeterson3@icloud.com
+aracelimoore3@icloud.com
+kellysimpson22@icloud.com
+harperochoa@icloud.com
+heidiconley27@icloud.com
+knox1346@icloud.com
